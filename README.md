@@ -1,0 +1,3 @@
+My name is Pedram, I’m worldview in beauty, knowledge and goodness.
+I’m interested in Science, Sports, Programming, Movies, Music, Dance on Ice, Love & …
+
